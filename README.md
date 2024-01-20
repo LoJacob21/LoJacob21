@@ -4,5 +4,5 @@
 
 ## Hobbies 
 - Livros
-- Games
-
+- Games 
+- Animes
