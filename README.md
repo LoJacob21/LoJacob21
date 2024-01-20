@@ -1,6 +1,6 @@
 # Lorena Jacob 
 
-## Estudante de Engenharia da Computação
+## Estudante de Engenharia da Computação :computer:
 
 ## Hobbies 
 - Livros
