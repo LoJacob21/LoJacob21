@@ -1,4 +1,4 @@
-# Lorena Jacob 
+# Lorena Jacob :wave:
 
 ## Estudante de Engenharia da Computação :computer:
 
